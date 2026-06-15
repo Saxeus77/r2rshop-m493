@@ -1,0 +1,1 @@
+# r2rshop-x100-direkturtoto
